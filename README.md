@@ -3,6 +3,7 @@ Sita Thomas is an accomplished entrepreneur weaving together 15 years of relevan
 
 # Ways to Connect
 [LinkedIn](https://www.linkedin.com/in/sita-thomas/)
+
 [Portfolio](https://nycdatascience.com/blog/author/sita-thomas/)
 
 # Highlighted Data Science Projects
