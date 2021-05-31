@@ -1,5 +1,5 @@
 # Summary
-Sita Thomas is an accomplished entrepreneur weaving together 15 years of relevant experience in business development, research statistics, and communication arts to offer sophisticated data visualization and machine learning.
+Sita Thomas weaves together nearly 20 years of product analytics, research & statistics, and marketing to create sophisticated, high-impact business intelligence and product solutions. She builds and improves products, strategizes marketing and pricing plans, improves customer experience, makes solid predictions, and maximizes revenue.
 
 # Ways to Connect
 [LinkedIn](https://www.linkedin.com/in/sita-thomas/)
