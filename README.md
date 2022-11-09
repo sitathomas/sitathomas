@@ -1,5 +1,5 @@
 # Summary
-Sita Thomas weaves together 20 years of product analytics, research & statistics, and marketing to create sophisticated, high-impact business intelligence and product solutions. She builds and improves products, strategizes marketing and pricing plans, improves customer experience, makes solid predictions, and maximizes revenue.
+Zee Steadfast weaves together 20 years of product analytics, research & statistics, and marketing to create sophisticated, high-impact business intelligence and product solutions. She builds and improves products, strategizes marketing and pricing plans, improves customer experience, makes solid predictions, and maximizes revenue.
 
 # Ways to Connect
 [LinkedIn](https://www.linkedin.com/in/sita-thomas/)
